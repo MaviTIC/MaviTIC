@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MaviTIC
+- 👀 I’m interested in new learning methologies
+- 🌱 I’m currently learning about big data and IA
+- 💞️ I'm working as a IT teacher
+- 📫 How to reach me in twitter: @mavii
